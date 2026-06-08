@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MEEM981219HPLRRR07
+MEEM981219HPLRRR07
